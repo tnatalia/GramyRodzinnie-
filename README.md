@@ -1,2 +1,1 @@
-# GramyRodzinnie-
-Jestem mamu
+Jestem  mama która gra razem z synem w różne gry na telefonie czy na komputerze.![skiny swiąteczne](https://user-images.githubusercontent.com/86546515/145700759-a8a65f86-0355-471d-aafc-048f6ea529ba.jpg)
